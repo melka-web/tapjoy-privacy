@@ -153,3 +153,4 @@ By downloading and using the Application, you agree to this Privacy Policy.
 
 **This policy is effective as of October 22, 2025**
 
+
